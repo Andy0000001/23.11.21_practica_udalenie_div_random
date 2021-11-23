@@ -1,0 +1,1 @@
+# 23.11.21_practica_udalenie_div_random
